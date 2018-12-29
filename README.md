@@ -1,0 +1,2 @@
+# Lope
+Khusus Buat Jones
